@@ -5,13 +5,9 @@ https://github.com/user-attachments/assets/e6a0a9c9-4ae5-4db7-b0e0-98dbf89667bc
 𝐜𝐡𝐮𝐜 𝐦𝐮𝐧𝐠 𝐬𝐢𝐧𝐡 𝐧𝐡𝐚𝐭 𝐍𝐆𝐔𝐘𝐄𝐍 𝐒𝐈𝐍𝐇 𝐂𝐔𝐍𝐆.ᐟ    
 𝚌𝚑𝚞𝚌 𝚖𝚞𝚗𝚐 𝚜𝚒𝚗𝚑 𝚗𝚑𝚊𝚝 𝙱𝙰𝙲 𝙷𝙾.ᐟ                
        <div align="center">
-
 𝟷𝟿/𝟻/𝟏𝟖𝟗𝟎-𝟐𝟎𝟐𝟔.
-
 </div> <div align="center">
-
 kỉ niệm 136 năm 🌹
-
 </div>     
 -> tik 𝕞𝕪: _.𝕟𝕘𝕠𝕫_                     
 "ℭ𝔞̉ ℭ𝔲𝔬̣̂𝔠 Đ𝔬̛̀𝔦 𝔅𝔞́𝔠 Đ𝔬́𝔫𝔤 𝔊𝔬́𝔭 ℭ𝔥𝔬 Đ𝔞̂́𝔱 𝔑𝔲̛𝔬̛́𝔠...
