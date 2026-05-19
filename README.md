@@ -6,7 +6,7 @@ https://github.com/user-attachments/assets/e6a0a9c9-4ae5-4db7-b0e0-98dbf89667bc
 𝚌𝚑𝚞𝚌 𝚖𝚞𝚗𝚐 𝚜𝚒𝚗𝚑 𝚗𝚑𝚊𝚝 𝙱𝙰𝙲 𝙷𝙾.ᐟ                
        <div align="center">
 𝟷𝟿/𝟻/𝟏𝟖𝟗𝟎-𝟐𝟎𝟐𝟔.
-</div> <div align="center">
+</div>                                        <div align="center">
 kỉ niệm 136 năm 🌹
 </div>     
 -> tik 𝕞𝕪: _.𝕟𝕘𝕠𝕫_                     
