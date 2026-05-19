@@ -8,7 +8,7 @@ https://github.com/user-attachments/assets/e6a0a9c9-4ae5-4db7-b0e0-98dbf89667bc
 
 𝟷𝟿/𝟻/𝟏𝟖𝟗𝟎-𝟐𝟎𝟐𝟔.
 
-</div>                <div align="center">
+</div> <div align="center">
 
 kỉ niệm 136 năm 🌹
 
